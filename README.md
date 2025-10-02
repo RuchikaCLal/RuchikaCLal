@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 Heya! I'm Ruchika
 🔭 I’m currently working on:<br>Building AI-powered projects that merge creativity with problem-solving<br><br>👯 I’m looking to collaborate on:<br>AI + Design experiments, hackathons, and creative prototypes<br><br>🤝 I’m looking for help with:<br>Figuring out how to scale my ideas into something people can actually use<br><br>🌱 I’m currently learning:<br>A bit of everything about AI, automation, and how tools can make life easier. I like experimenting more than following strict rules<br><br>💬 Ask me about:<br>Designing interfaces, brainstorming project ideas, or how to add a creative spin to AI projects<br><br>⚡ Fun fact:<br>I love The Last of Us sooo much! Playing zombie games is my ultimate stress reliever 🧟🎮
 
 
